@@ -2,7 +2,7 @@
 
 One line reviewing the dullest everyday object I could name — the tea towel:
 
-> The tea towel hangs in the kitchen for years, drying almost nothing, damp, decorative, and deeply unemployed.
+> The tea towel has dried exactly one dish in six years and spends the rest of its life hanging there, damp, decorative, and deeply unemployed.
 
 ## Why this object
 
